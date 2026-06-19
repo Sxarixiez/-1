@@ -1,5 +1,10 @@
+<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/6648385b-7fa0-4818-9fcb-c2f69df3d1ae" />
 
+Im feelin a lil female sometimes idk 
 
+<img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/d4696070-0de1-4c0b-b74a-fe490ec6617b" />
+
+丂乂卂尺乂丨尺丨乇 !!1 UR LOCAL PUNK/METAL ENJOYER
 
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢☢️
 •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
